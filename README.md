@@ -1,4 +1,4 @@
-### Hi there 👋
+### 加藤小鹿被杀害 蹦蹦跳跳不再 👋
 
 <!--
 **linghualuan/linghualuan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
